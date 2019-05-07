@@ -1,2 +1,2 @@
 # BangRicky.github.io
-个人博客
+不要当舔狗
